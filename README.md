@@ -3,7 +3,7 @@
   
 ![](https://komarev.com/ghpvc/?username=shypills&color=919A89&label=+++visitors+++𓈒+++)\
 \
-<sub>$\text{\color{#E3B67F}andrew  𓎢𓎟  charlie}$\
+<sub>$\text{\color{#E3B67F}andrew  𓎢𓎟  charles}$\
 $\text{\color{#E3B67F}hehim  fifteen  iayor}$\
 \
 $\text{\color{#E3B67F}public chat off — w2i preferred}$\
