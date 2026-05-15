@@ -11,7 +11,7 @@ $\text{\color{#E3B67F}extremely cuddle friendly!}$\
 \
 $\text{\color{#919A89}──────── ⠀✶⠀ ────────}$\
 \
-[rentry](https://rentry.co/andrewdoe)  [新book](https://sundozed.atabook.org/)  [pronouns.cc](https://pronouns.cc/@scamduo)
+[rentry](https://rentry.co/andrewdoe)  [新book](https://sundozed.atabook.org/)  [pronouns.cc](https://pronouns.cc/@allium)
 
 ⠀
 
