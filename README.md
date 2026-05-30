@@ -12,7 +12,7 @@ $\text{\color{#A49456}oppymince (musical) fans int}$\
 \
 $\text{\color{#D0344A}──────── ⠀✶⠀ ────────}$\
 \
-[rentry](https://rentry.co/cholmondeley)  [新book](https://montlie.atabook.org/)  [prons.cc](https://pronouns.cc/@montlie)
+[rentry](https://rentry.co/cholmondeley)  [新book](https://montlie.atabook.org/)  [pronouns.cc](https://pronouns.cc/@montlie)  [strawp](https://montlie.straw.page/)
 
 ⠀
 
