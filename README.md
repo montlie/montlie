@@ -6,8 +6,8 @@
 <sub>$\text{\color{#A49456}andrew  𓎢𓎟  charles}$\
 $\text{\color{#A49456}hehim  fifteen  iayor}$\
 \
-$\text{\color{#A49456}whispers initially preferred}$\
-$\text{\color{#A49456}extremely cuddle friendly}$\
+$\text{\color{#A49456}whispers preferred unless friends}$\
+$\text{\color{#A49456}i strongly encourage c+h :-)}$\
 $\text{\color{#A49456}oppymince (musical) fans int}$\
 \
 $\text{\color{#D0344A}──────── ⠀✶⠀ ────────}$\
