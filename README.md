@@ -3,12 +3,8 @@
   
 ![](https://komarev.com/ghpvc/?username=shypills&color=D0344A&label=+++visitors+++𓈒+++)\
 \
-<sub>$\text{\color{#A49456}andrew  𓎢𓎟  charles}$\
-$\text{\color{#A49456}hehim  fifteen  iayor}$\
-\
-$\text{\color{#A49456}whispers preferred unless friends}$\
-$\text{\color{#A49456}i strongly encourage c+h :-)}$\
-$\text{\color{#A49456}oppymince (musical) fans int}$\
+<sub>$\text{\color{#A49456}andrew  𓎢𓎟  hehim}$\
+$\text{\color{#A49456}15  w2i pref  c+h always}$\
 \
 $\text{\color{#D0344A}──────── ⠀✶⠀ ────────}$\
 \
