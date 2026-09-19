@@ -18,9 +18,9 @@ $\text{\color{#984676}shoutout to these folks⠀;⠀love you all⠀❤︎⁠}$\
 [@starfollower](https://github.com/starfollower) [@aesvic](https://github.com/aesvic) [@gumbawll](https://github.com/gumbawll)$\text{\color{#5D5357}⠀⠀✦}$
 \
 \
-$\text{\color{#865B65}੭          ﹕          ﹒}$\
+$\text{\color{#865B65}⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀੭          ﹕          ﹒}$\
 \
 $\text{\color{#74404D}✎⠀⠀﹏﹏﹏﹏}$⠀⠀⠀⠀[rentry.co](https://rentry.co/montlie)  [pronouns.cc](https://pronouns.cc/@montlie)  [新book](https://montlie.atabook.org/)\
-$\text{\color{#713456}⠀⠀⠀ ⠀⠀⠀⠀ ⠀NOT⠀⠀mobile⠀⠀friendly..}$
+$\text{\color{#713456}NOT⠀⠀mobile⠀⠀friendly..}$
 
  
