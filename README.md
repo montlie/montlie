@@ -6,7 +6,8 @@
 \
 $\text{\color{#AE9DA5}andrew ou elias ♡ hehim 6teen 𖬺 introverted (infp-t 6w5)}$\
 $\text{\color{#A08E9A}fictionkin, but details aren't really important + idgaf about "doubles"}$\
-$\text{\color{#9D8891}i'm usually sat in the osc or roblox area or elsewhere with friends!⠀⠀}$
+$\text{\color{#9D8891}i'm usually sat in the osc or roblox area or elsewhere with friends!}$\
+$\text{\color{#8F7E8E}come say hi or sign my ata if i'm preoccupied; i also LOVE c+h}$
 
 <details>
 <summary> </summary>
