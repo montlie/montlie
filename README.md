@@ -17,6 +17,4 @@ $\text{\color{#782922}♡}$
 
 </details>
 
-<sub>[rentry.co](https://rentry.co/montlie)  [pronouns.cc](https://pronouns.cc/@montlie)  [新book](https://montlie.atabook.org/)\
-\
- 
+<sub>[rentry.co](https://rentry.co/montlie)  [pronouns.cc](https://pronouns.cc/@montlie)  [新book](https://montlie.atabook.org/)
