@@ -1,6 +1,6 @@
 <div align="center">
   
-![](https://komarev.com/ghpvc/?username=shypills&color=EE852D&label=+++SHORT FUSE+++𓈒+++)\
+![](https://komarev.com/ghpvc/?username=shypills&color=EE852D&label=+++ONE OF MANY +++𓈒+++)\
 \
 <sub>$\text{\color{#AC472C}hi i am andrew!! he/him unlabeled}$\
 $\text{\color{#AC472C}i don't play pt that much anymore}$\
