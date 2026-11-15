@@ -1,11 +1,20 @@
 <div align="center">
-  
-<img src="https://64.media.tumblr.com/633c1c1f0a7f58093e4d15e6dc9392c8/ce9d1e3d5ca6e5c4-62/s1280x1920/5e0c25fd7ae5411008e1f0c2b2078c227618d889.pnj" width=20% height=20%>\
-hello\
-lowkey a huge wip cause i forgot how\
-to do ANYTHING gh related
 
 
+<img src="https://64.media.tumblr.com/ef60e4395af2e56b1b7307f7ef598c18/ac7ca9e806546f3b-d5/s2048x3072/9b491403865e142dcd7f0fe1d6a0a6cdaf0e74ae.pnj" width=20% height=20%>\
+⠀
+⠀\
+hi ⟡ my name is andrew or elias\
+16yo—hehim & fictionkin\
+semi-inactive ꫂ but i hop on\
+now and then to see what's up\
+⠀\
+⁺　  .⠀⠀⠀⠀✦⠀⠀⠀⠀.　 ⁺\
+⠀\
+big fan of bad things, sig games, reading\
+& writing, as well as musical theatre\
+[operation mincemeat + hadestown ♡]\
+check out my rentry for more
 
   
 <details>
